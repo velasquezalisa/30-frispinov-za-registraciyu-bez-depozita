@@ -1,0 +1,1 @@
+# 30-frispinov-za-registraciyu-bez-depozita
